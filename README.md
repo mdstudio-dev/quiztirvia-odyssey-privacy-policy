@@ -1,1 +1,1 @@
-# quiztirvia-odyssey-privacy-policy
+# quiztirvia odyssey privacy policy
